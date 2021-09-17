@@ -1,4 +1,4 @@
-## Hi there 👋
+## MICROSOFT STUDENT CHAPTER VIT AP
 
 <p align="center">
 
